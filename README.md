@@ -37,3 +37,4 @@ The seller is not responsible for any issues or consequences arising from the us
 This Bot is working as a youtube view bot which is full automated once setup.
 NO Refunds after the purchase has been made, support avaiable for 6 days after the purchase.
 **Running upto date- Last Checked 26th Jan 2025. **
+This is for Educational Purposes only.
